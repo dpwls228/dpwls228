@@ -6,4 +6,4 @@
 - 📫 How to reach me: dpwls228@gachon.ac.kr
 - 😄 Student ID: 201937913 
 
-Thank you for visiting my GitHub
+Thank you for visiting my GitHub!
